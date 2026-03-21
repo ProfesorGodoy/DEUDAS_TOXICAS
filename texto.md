@@ -322,3 +322,148 @@ Empezaste a consultar el saldo disponible en la tarjeta antes que el saldo en tu
 4. La justificación: "Me lo merezco"
 Como cuando tus amigos te dicen que esa persona no te conviene y vos la defendés a muerte, con la deuda hiciste lo mismo.
 "Es solo para aprovechar la oferta", "Es una inversión en mi imagen". Empezaste a crear historias para que el romance no se rompiera. Pero la realidad es que estabas comprando af
+4. La justificación: "Me lo merezco"
+Como cuando tus amigos te dicen que esa persona no te conviene y vos la defendés a muerte, con la deuda hiciste lo mismo.
+"Es solo para aprovechar la oferta", "Es una inversión en mi imagen". Empezaste a crear historias para que el romance no se rompiera. Pero la realidad es que estabas comprando afecto propio con plata prestada.
+
+Ejercicio de memoria:
+Pensá en ese primer "gusto" que te diste con crédito. No el de la emergencia, sino el del placer.
+¿Qué te susurró la tarjeta al oído en ese momento?
+
+                </a></li>
+                <li><a href="#">Capítulo 2 – La ilusión de control...............Capítulo B – La Ilusión de Control: "Yo lo manejo"En toda relación tóxica hay una etapa de negación absoluta que llamamos "La Ilusión de Control". Es ese momento donde sentís que tenés el poder, cuando en realidad la otra persona (en este caso, la deuda) ya empezó a reescribir las reglas de tu casa.1. El engaño de "La Cuota Mínima"Es el equivalente financiero a que tu pareja te diga: "No hace falta que hablemos de nuestros problemas hoy, con que me des un beso me alcanza".El pago mínimo es un gesto de afecto vacío. Te hace sentir que "cumplís", que la relación está bajo control y que el banco todavía te quiere. Pero mientras vos das ese beso simbólico, los intereses están teniendo una fiesta a tus espaldas.Creés que tenés el control porque la tarjeta sigue pasando, pero no te das cuenta de que solo estás comprando el derecho a seguir siendo un rehén un mes más.2. El "Solo por esta vez"Esta es la frase más peligrosa de cualquier romance destructivo."Solo por este mes pago el mínimo"."Solo uso la tarjeta para el súper porque hubo un gasto extra"."Después, con el aguinaldo o el bono, la dejo en cero".Es la misma lógica de quien perdona una falta grave pensando que no se va a repetir. La deuda se ríe de tus promesas de "después", porque sabe que una vez que cruzás la línea de financiar tu costo de vida, ya no sos el conductor, sos el pasajero.3. La fragmentación de la realidadLa ilusión de control se apoya en que dejes de ver el total. El sistema te ayuda: te muestra la cuota, no la deuda. Te muestra el "disponible", no el "excedido".Es como salir con alguien que te oculta su pasado y solo te muestra su mejor cara los fines de semana. Si solo mirás la cuota de $50$, sentís que dominás el juego. Pero si miraras el total de $2.500$ a una tasa del $90\%$, saldrías corriendo. La deuda te mantiene tranquilo dándote la información en cuentagotas para que no te asustes y le cortes el rostro.4. El efecto "Anestesia"Llega un punto donde el estrés se vuelve paisaje. Te acostumbrás a vivir con el nudo en la panza, pero te convencés de que "así vive todo el mundo".Creés que tenés el control porque todavía podés elegir qué tarjeta usar para pagar la otra. Eso no es control, es malabarismo en la cuerda floja. Estás tan ocupado tratando de que los platos no se caigan, que te olvidaste de que hace meses que no caminás por suelo firme.Momento de sinceridad:¿Cuántas veces te dijiste "el mes que viene la acomodo"?Ese "mes que viene" es el refugio de los que no quieren aceptar que la relación ya se les fue de las manos.Si hoy tuvieras que liquidar todo lo que debés con lo que tenés en la mano, ¿podrías? Si la respuesta es no, entonces la ilusión se terminó: la deuda es la que tiene el control, no vos.
+                </a></li>
+                <li><a href="#">Capítulo 3 – Cuando la deuda se vuelve tóxica.....Capítulo C – Cuando la deuda se vuelve tóxica: El desgaste
+En cualquier relación, hay un momento donde la magia se apaga y empezás a notar que las cosas no fluyen. No hubo un gran escándalo, pero sentís que el aire está más pesado. Con la deuda pasa igual: deja de ser ese "permiso para disfrutar" y se convierte en una presencia constante que te quita la paz.
+
+Ahí es cuando la relación se vuelve, silenciosamente, tóxica.
+
+1. Ya no sos el que decide los planes
+¿Viste esa pareja que decide todo por vos, desde qué comen hasta a dónde van el fin de semana? La deuda hace lo mismo cuando se vuelve tóxica.
+Llega el día de cobro y, antes de que puedas pensar en darte un gusto, ya sabés que ese dinero tiene dueño. No elegís qué comprar; elegís qué parte de la deuda vas a "calmar" este mes para que te deje respirar. Pasás de ser el dueño de tu esfuerzo a ser un simple intermediario: recibís la plata con una mano y se la entregás a la tarjeta con la otra.
+
+2. La sensación de remar en dulce de leche
+Esa es la señal más clara de que la relación se desgastó. Hacés el esfuerzo, pagás lo que podés, te privás de cosas... y cuando mirás el resumen el mes siguiente, el número casi no se movió.
+Es como intentar arreglar las cosas con alguien que nunca está conforme. Sentís que caminás y caminás, pero seguís en el mismo lugar. Esos intereses que antes ni mirabas ahora son los que se quedan con la mejor parte de tu sueldo, dejándote a vos las migajas.
+
+3. El silencio que separa
+Cuando una relación no va bien, empezás a evitar ciertos temas para no pelear. Con la deuda, empezás a evitar el resumen.
+Dejás el mail sin abrir un par de días. No entrás a la app del banco para no amargarte el café. Ese silencio no es olvido, es protección. El problema es que, mientras vos mirás para otro lado, la deuda sigue ahí, ocupando espacio en tu cabeza y quitándote claridad para disfrutar de las cosas simples.
+
+4. El cansancio del "siempre lo mismo"
+Llega un punto donde lo que más te duele no es el dinero en sí, sino el cansancio mental. Esa vocecita que te acompaña todo el día recordándote lo que debés. Ya no dormís con la misma profundidad, o te despertás pensando en cómo vas a llegar a fin de mes.
+Esa falta de libertad para proyectar un viaje, un cambio de casa o simplemente una cena tranquila es la prueba de que la relación dejó de sumarte y empezó a restarte vida.
+
+Una pregunta para pensar:
+Si hoy la deuda fuera una persona que se sienta a comer con vos cada noche... ¿te sentirías cómodo con su compañía o estarías contando los minutos para que se vaya?
+Si la respuesta es que preferirías estar solo, es momento de aceptar que el vínculo está roto. No es tu culpa, simplemente el sistema de la deuda dejó de ser una herramienta y pasó a ser un peso..</a></li>
+                <li><a href="#">Capítulo 4 – Dejar de escapar.........Excelente elección. Después de admitir que la relación está desgastada, el paso más difícil no es pagar, sino dejar de correr. En las relaciones tóxicas, el mecanismo de defensa es la evitación: no contestar el teléfono, no mirar a los ojos, desaparecer. Con la deuda, hacemos lo mismo.
+
+Aquí tienes el Capítulo D, con ese tono tranquilo de quien te invita a dejar de huir.
+
+Capítulo D – Dejar de escapar: El fin de la evitación
+En toda relación que nos hace daño, desarrollamos un instinto de supervivencia: la evitación. Empezamos a caminar por la otra vereda para no cruzarnos con esa persona, borramos sus mensajes sin leerlos y nos inventamos una realidad paralela donde "todo está bien".
+
+Con la deuda, tu mecanismo de defensa ha sido el mismo. Pero escapar consume más energía que enfrentar. Es momento de dejar de correr.
+
+1. El peso de lo que no se dice
+¿Viste esa sensación de alivio falso cuando borrás un mail del banco o guardás el resumen en un cajón sin abrirlo? Ese alivio dura tres segundos. Después, se transforma en una piedra que llevás en la mochila todo el día.
+Escapar de la deuda es como estar en una relación donde sabés que te están engañando pero preferís no preguntar para no confirmar la verdad. La incertidumbre es un veneno lento; te quita el hambre, te quita el sueño y te quita la capacidad de disfrutar lo que sí tenés. Dejar de escapar es, antes que nada, dejar de mentirte a vos mismo.
+
+2. El "Visto" financiero
+En el mundo de hoy, clavarle el "visto" a alguien es un mensaje en sí mismo. Con tus finanzas has estado haciendo lo mismo: ignorando las notificaciones, las fechas de vencimiento y los saldos en rojo.
+Pero a diferencia de una persona, la deuda no se cansa ni se ofende; ella sigue trabajando mientras vos la ignorás. Cada día que pasás escapando, la deuda se hace más fuerte. Dejar de escapar significa sentarte a la mesa, abrir la aplicación del banco y decir: "Bueno, vamos a ver qué está pasando acá". No para castigarte, sino para dejar de ser un fugitivo en tu propia vida.
+
+3. La trampa del "Ya fue"
+Cuando la presión de la relación tóxica es mucha, aparece el pensamiento del "Ya fue": "Ya debo tanto que una mancha más al tigre no le hace nada". Es el equivalente a decir: "Ya que nos llevamos mal, peleémonos por todo".
+Este es el punto más peligroso de la huida. Es cuando dejás de cuidar tu futuro porque el presente te abruma. Dejar de escapar significa romper ese ciclo de resignación. Significa entender que cada peso que dejes de ignorar hoy, es un minuto de paz que le devolvés a tu "yo" de mañana.
+
+4. Mirar el monstruo a los ojos
+Cuando éramos chicos y teníamos miedo de algo que estaba debajo de la cama, la única forma de que el miedo se fuera era prendiendo la luz. Al prender la luz, descubríamos que el "monstruo" era solo una pila de ropa vieja.
+Tu deuda hoy es una sombra gigante porque no la estás mirando de frente. Cuando dejes de escapar y anotes los números reales, vas a sentir un miedo inicial, sí; pero después vas a sentir una claridad liberadora. El monstruo tiene un tamaño real, tiene un nombre y, por lo tanto, tiene una solución.
+
+Reflexión para hoy:
+¿Cuál es ese número o ese resumen que hace semanas (o meses) que evitás mirar?
+Hoy no te pido que lo pagues. Solo te pido que lo mires. Que lo reconozcas.
+Escribí ese número en un papel. Sacalo de tu cabeza y ponelo en el mundo real. Al hacerlo, le quitás el poder de perseguirte en tus pensamientos. Hoy dejas de ser la presa..</a></li>
+            </ul>
+        </div>
+
+        <div class="section">
+            <h2>Parte 2 – Preparar la ruptura</h2>
+            <ul>
+                <li><a href="#">Capítulo 5 – Conocer a tu “enemigo”.......Capítulo A – Conocer a tu “enemigo”
+Para dejar a una pareja tóxica, primero tenés que dejar de idealizarla. Tenés que verla tal cual es: fría, calculadora y extractiva. No podés pelear contra lo que no te animás a mirar a los ojos. El sistema financiero cuenta con tu evitación emocional; se alimenta de ese miedo que sentís al abrir la app del banco o el sobre del resumen.
+
+Romper el hechizo requiere que transformes ese monstruo invisible en una lista de números concretos. Recordá: lo que no se mide, no se domina.
+
+1. El Inventario del Daño
+No lo hagas con culpa, hacelo con la frialdad de un perito judicial. Agarrá una hoja y anotá cada "vínculo" activo que tenés:
+
+Nombre de la Deuda: (Ej: Tarjeta Visa, Préstamo de la tía, Cuotas del celular).
+
+Monto Total: Lo que deberías poner hoy para que desaparezca.
+
+La "Cuota de Mantenimiento": Cuánto te cuesta mensualmente mantener esa relación viva (intereses + cargos).
+
+La Tasa de Toxicidad (TEA): ¿Qué tan caro te sale el "favor" de que te presten plata?
+
+2. Identificar los Disparadores de la Recaída
+Toda relación tóxica tiene un momento de debilidad donde uno llama por teléfono a las 2 a.m. En las finanzas, esto es el gasto impulsivo.
+
+¿Es por aburrimiento? (Hacer scroll en apps de compras).
+
+¿Es por presión social? (Salir a comer a un lugar que no podés pagar para no "quedar mal").
+
+¿Es por el "Me lo merezco"? El autorregalo como anestesia para un trabajo que odiás.
+
+3. Devolver la Fricción
+El sistema te lo hace fácil para que no pienses. Tu misión es complicarte la vida.
+
+Borrá los datos de la tarjeta de las webs de compras (que te duela tener que ir a buscar el plástico).
+
+Si la tarjeta es tu "ex" más peligrosa, ponela en el freezer (literalmente) dentro de un tacho con agua. Para usarla, vas a tener que esperar a que se descongele. Esos 20 minutos son la diferencia entre un impulso y una decisión consciente.
+
+Reflexión / Ejercicio para el lector
+Hoy vas a hacer el "Mapa del Desamor Financiero".
+
+No te pido que pagues nada todavía. Solo quiero que sumes el total de tus deudas y dividas ese número por tu valor hora de trabajo (Sueldo neto / Horas trabajadas).
+
+Anotá ese número en un post-it y pegalo en tu billetera. La próxima vez que vayas a usar el crédito, ese papelito te va a decir: "Esto no cuesta $50.000, esto te cuesta 15 horas de tu vida sentado en la oficina".
+
+¿Estás dispuesto a regalarle esas 15 horas a tu enemigo?..</a></li>
+                <li><a href="#">Capítulo 6 – Ordenar el caos</a></li>
+                <li><a href="#">Capítulo 7 – Decir basta</a></li>
+            </ul>
+        </div>
+
+        <div class="section">
+            <h2>Parte 3 – Crear hábitos financieros</h2>
+            <ul>
+                <li><a href="#">Capítulo 8 – Tus hábitos te trajeron hasta acá</a></li>
+                <li><a href="#">Capítulo 9 – Sistema de hábitos</a></li>
+                <li><a href="#">Capítulo 10 – Pequeños cambios</a></li>
+                <li><a href="#">Capítulo 11 – Control sin sufrir</a></li>
+            </ul>
+        </div>
+
+        <div class="section">
+            <h2>Parte 4 – Terminar la relación</h2>
+            <ul>
+                <li><a href="#">Capítulo 12 – El plan de salida</a></li>
+                <li><a href="#">Capítulo 13 – La última cuota</a></li>
+                <li><a href="#">Capítulo 14 – No volver a caer</a></li>
+            </ul>
+        </div>
+
+        <div class="section">
+            <h2>Cierre</h2>
+            <ul>
+                <li><a href="#">Tu nueva vida sin deudas</a></li>
+                <li><a href="#">Mensaje final</a></li>
+            </ul>
+        </div>
+
+    </div>
+</body>
+</html>
