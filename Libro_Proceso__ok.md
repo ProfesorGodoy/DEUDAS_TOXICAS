@@ -583,6 +583,8 @@ Capítulo 11 – Control sin sufrir
 Devolver la fricción
 [Por desarrollar: Sentir el costo real: Volver al efectivo o al registro manual. El alivio
 de la conciencia plena.]
+
+
 PARTE 4
 Terminar la relación
 Capítulo 12 – El plan de salida
